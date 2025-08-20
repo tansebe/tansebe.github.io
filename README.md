@@ -1,6 +1,6 @@
 # ⲧⲁⲛⲥⲏⲃⲉ ⲛ̄ⲧⲙⲛ̄ⲧⲣⲙ̄ⲛ̄ⲕⲏⲙⲉ
 
-Egyptian language study group
+Ancient Egyptian language study group
 
 ## Transcriptions
 
